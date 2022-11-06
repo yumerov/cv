@@ -12,6 +12,8 @@
 
 **Email:** levent@yumerov.com
 
+**LinkedIn:**: https://www.linkedin.com/in/levent-y-918a14148/
+
 A skilled and proactive person, who is passionate about delivering exceptional value. Great communication and interpersonal skills combined with an extensive experience in agile methodology. Can work without supervision and enjoys being a part of diverse cross-functional teams.
 
 ## Soft skills
